@@ -9,17 +9,7 @@ kumao
 sota
 
 fujii kosuke
-
-
-
-
-
-
-
-
-
 ikejima ryouma
 
-
-
 yamamoto takuma
+
