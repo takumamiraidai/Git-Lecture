@@ -6,9 +6,9 @@ sato masaya
 
 kumao
 
-
+thina
 sota
 fujii kosuke
-ikejima ryouma
 
+ikejima ryouma
 yamamoto takuma
