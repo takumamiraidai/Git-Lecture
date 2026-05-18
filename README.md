@@ -8,4 +8,13 @@
 
 
 
+
 sato masaya
+
+sota
+
+
+
+
+yamamoto takuma
+
