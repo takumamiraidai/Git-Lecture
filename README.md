@@ -1,1 +1,2 @@
-# Git-Lecture
+# Git-Lecture 
+Uraguchi Haruka
