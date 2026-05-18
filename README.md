@@ -22,12 +22,11 @@ fujii kosuke
 
 
 
-
 ikejima ryouma
 
 
-
 yamamoto takuma
+
 
 
 
