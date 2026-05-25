@@ -1,7 +1,7 @@
 # Git-Lecture
 uraguchi haruka b1026028
 
-sato masaya
+sato masaya 1026080 aa
 
 
 kumao 1026037
