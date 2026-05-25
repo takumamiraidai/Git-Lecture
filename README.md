@@ -15,7 +15,7 @@ yamamoto takuma
 
 
 
-kasukasu 1026076
+kasukasu b1026076
 
 
 
