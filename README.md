@@ -12,6 +12,7 @@ fujii kosuke
 
 ikejima ryouma
 yamamoto takuma
+fujita taisei b1025190
 
 
 
