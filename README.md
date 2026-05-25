@@ -1,5 +1,5 @@
 # Git-Lecture
-uraguchi haruka
+uraguchi haruka b1026028
 
 sato masaya
 
