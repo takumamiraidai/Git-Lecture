@@ -1,7 +1,0 @@
-# Git-Lecture
-
-
-
-
-
-Nakamura Yuka
